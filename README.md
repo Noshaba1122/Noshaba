@@ -1,2 +1,2 @@
-# Noshaba
+fajira.com
 https://fajira.com/
